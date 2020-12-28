@@ -1,1 +1,1 @@
-# alebar95.BuddyWork.io
+# alebar95.buddywork.io
